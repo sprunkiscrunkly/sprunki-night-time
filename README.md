@@ -85,3 +85,8 @@ Sprunki Night Time stands out with its unique blend of dark-themed design, ambie
 Dive into the shadows! Experience glowing characters, ambient sounds, and mesmerizing gameplay in this unique dark-themed transformation of the Sprunki universe.
 
 [Play Sprunki Night Time Now - It's Free!](https://sprunkiscrunkly.com/sprunki-night-time/#play-now)
+
+[Sprunki Night Time Community](https://communityin.oppo.com/thread/1775841342295900166)
+
+
+
